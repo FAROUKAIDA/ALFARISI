@@ -1,2 +1,0 @@
-# ALFARISI
-DFF N SA
